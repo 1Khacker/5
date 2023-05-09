@@ -1,0 +1,1 @@
+bu bot discord.gg/auxo ya aittir
